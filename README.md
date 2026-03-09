@@ -1,0 +1,1 @@
+Welcome to the 2026 South GA WMS Conference! We hope that you enjoy yourselves and learn more on how our South Georgia Missionaries are impacted our communities and making substainable change each and every day!
